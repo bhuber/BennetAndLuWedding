@@ -1,1 +1,5 @@
 theme: jekyll-theme-tactile
+
+plugins:
+# https://github.com/benbalter/jekyll-relative-links
+  - jekyll-relative-links
