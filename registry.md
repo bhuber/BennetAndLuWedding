@@ -24,5 +24,6 @@ In lieu of cash gifts, please present confirmation of your support to any of the
 * Bike Works - <https://bikeworks.org/>
 * Downtown Emergency Service Center - <https://www.desc.org/>
 * St. Jude Children's Research Hospital - <https://www.stjude.org/donate>
+* Burned Children Recovery Foundation - <https://www.burnedchildrenrecovery.org/>
 * Donors Choose - <https://www.donorschoose.org/donors/search.html> - Directly fund public school projects of your choosing.  Projects/equipment are fulfilled by the organization once the fundraising goal is met.  You get updates of the kids enjoying what you helped fund.  See first hand what your help can do for underprivileged school systems.
 
