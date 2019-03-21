@@ -1,19 +1,16 @@
 ## Registry
 
 Personal gifts are welcome.  
-Please be assured that  your presence at our wedding is your gift to us... 
+Please be assured your presence at our wedding is all we need.
 
-In lieu of cash gifts, please present confirmation of your support to any of these charities below:
+In lieu of cash gifts, please support to any of the following charities:
 * Planned Parenthood - <https://www.plannedparenthood.org/>
 * American Civil Liberties Union - <https://www.aclu.org/>
 * Electronic Frontier Foundation - <https://www.eff.org/>
 * NPR - <https://www.npr.org/>
-* Marketplace Podcast - <https://www.marketplace.org/>
-* 99 percent invisible Podcast - <https://99percentinvisible.org/>
 * ProPublica - <https://www.propublica.org/>
 * Sunlight Foundation - <https://sunlightfoundation.com/>
 * The Guardian - <https://www.theguardian.com/us>
-* Wikipedia - <https://www.wikipedia.org/>
 * Natural Resources Defense Council - <https://www.nrdc.org/>
 * International Refugee Assistance Project - <https://refugeerights.org/>
 * NAACP Legal Defense Fund - <https://www.naacpldf.org/>
